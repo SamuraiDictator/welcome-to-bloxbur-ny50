@@ -1,4 +1,4 @@
-
+custom welcome to bloxburg Scripts is the best welcome to bloxburg Script, featuring auto-sell and auto-heal. Safe and powerful for all your needs.
 
 
 
